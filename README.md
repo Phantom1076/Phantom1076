@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Phantom1076
-- 👀 I’m interested in creating new software.
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on any interesting project.
 - 📫 How to reach me email me at shreder1076@gmail.com
